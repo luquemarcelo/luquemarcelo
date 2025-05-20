@@ -9,6 +9,6 @@ Profissionalmente busco aprender, me aprofundar e me atualizar nos tópicos de i
 Pessoalmente, sou apaixonado por futebol e cinema.
 
 Você pode me contactar através de:
-LinkedIn: https://www.linkedin.com/in/marcelo-luque-simoes/
-E-mail pessoal: luquemarcelo98@gmail.com
+LinkedIn: https://www.linkedin.com/in/marcelo-luque-simoes/ ;
+E-mail pessoal: luquemarcelo98@gmail.com ;
 E-mail profissional: marcelo.simoes@sec4you.com.br
